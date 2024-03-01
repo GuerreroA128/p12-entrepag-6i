@@ -24,5 +24,8 @@ https://docs.google.com/document/d/1jTloUy06IgWM7lw4rxjJRm-U0HS4YiTs9KUiXsZLa6U/
 ![image](https://github.com/GuerreroA128/p12-entrepag-6i/assets/143743819/f649c947-63c7-44c7-9e1c-050ec612c6f8)
 ![image](https://github.com/GuerreroA128/p12-entrepag-6i/assets/143743819/34be2b7f-c462-462c-9c14-976c7db7f9dc)
 ![image](https://github.com/GuerreroA128/p12-entrepag-6i/assets/143743819/39b30f0b-3700-4d81-ad26-598866ec10e6)
+![image](https://github.com/GuerreroA128/p12-entrepag-6i/assets/143743819/feb908ab-27dc-4e7e-86e0-d1dc5b33b4b6)
+![image](https://github.com/GuerreroA128/p12-entrepag-6i/assets/143743819/a3ee876a-c921-4d4f-b070-f3d6a756823d)
+
 
 
